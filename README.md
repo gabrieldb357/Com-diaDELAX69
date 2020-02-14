@@ -1,2 +1,2 @@
-# Com-diaDELAX69
+# ComediaDELAX69
 Desenvolvedor Avançado
